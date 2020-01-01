@@ -1,3 +1,3 @@
 # Statuates-and-Legal-Proceedings
-## These are important documents that we will be referencing, but will most likely not understand. We can't seem to understand that we are abusive, but we enjoy pointing the finger.
+## These are important documents that we could reference, but will most likely not understand or abide to. We can't seem to understand that we are abusive, but we enjoy pointing the finger.
 ### Disclaimer:  The views expressed here are solely those of the author in his private  capacity and do not in any way represent the views of BRUCE MCCLUGGAGE, family, the Department of  State, or any other entity of the U.S. Government. It should be quite  obvious that the Department of State has not approved, endorsed,  embraced, friended, liked, tweeted or authorized this post. 
