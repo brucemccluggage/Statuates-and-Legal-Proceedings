@@ -1,7 +1,8 @@
 # Statuates-and-Legal-Proceedings
-## These are important documents that we could reference, but will most likely not understand or abide to. We can't seem to take accountability for abuse, but we enjoy pointing the finger.
+## ( if you're viewing on mobile- hit the button "View Code" )
+### These are important documents that we could reference, but will most likely not understand or abide to. We can't seem to take accountability for abuse, but we enjoy pointing the finger.
 
-( if you're viewing on mobile- hit the button "View Code" )
+
 
 ### U.S. Code 1983 ( Deprivation of Rights )
 ### U.S. Code 1985 ( Conspiracy to Interfere )
